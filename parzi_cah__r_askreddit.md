@@ -1,77 +1,77 @@
 Question |
 --- |
 "You can't see your shadow in a mirror because mirrors only reflect light and shadows are an absence of light." |
-A chip and dip combo. <BLANK> dipped in <BLANK>. |
+A chip and dip combo. [BLANK] dipped in [BLANK]. |
 A female peacock is called a peacunt. |
-After I moved in with my significant other I learned they had a secret obsession with <BLANK>? |
+After I moved in with my significant other I learned they had a secret obsession with [BLANK]? |
 All dogs are male and all cats are female. |
-At my job I’m basically <BLANK> |
+At my job I’m basically [BLANK] |
 Besides a god or deity, what do you worship? |
 Blood is actually blue until it comes in contact with oxygen |
 Coconuts are mammals because they have hair and produce milk. |
 Darwin invented the theory of evolution. |
-Do to the rapid advancement of technology, I fear the children of the next generation will never get to experience <BLANK>. |
+Do to the rapid advancement of technology, I fear the children of the next generation will never get to experience [BLANK]. |
 Explorers of the deep-web, what have you found? |
-Finals week is weird, one time I actually saw someone have a complete mental breakdown because of <BLANK> |
+Finals week is weird, one time I actually saw someone have a complete mental breakdown because of [BLANK] |
 Hey 15-25 year-olds. This old lady wants to know -what are the 'cool' kids into these days? |
-Holy crap, that's the same actor from <BLANK>! |
+Holy crap, that's the same actor from [BLANK]! |
 How did you beat depression? |
 How do you deal with loneliness? |
 How do you get out of awkward social situations? |
 How do you pick yourself up after you have stumbled so far down? |
 How should one approach a cute girl in public? |
 Humans only use 10% of our brains. |
-I am afraid of <BLANK>. |
-I am temporarily obsessed with <BLANK>. |
-I ate <BLANK> for breakfast. |
-I collect <BLANK> of all kinds. |
-I don't want to live in a world without<BLANK> |
-I draw the line at <BLANK>. |
+I am afraid of [BLANK]. |
+I am temporarily obsessed with [BLANK]. |
+I ate [BLANK] for breakfast. |
+I collect [BLANK] of all kinds. |
+I don't want to live in a world without[BLANK] |
+I draw the line at [BLANK]. |
 I HATE the word "Vagina" what word do you hate? |
-I have <BLANK> as a &ldquo;plan B&rdquo; topic for when a conversation starts becoming awkward. |
-I intentionally mispronounce <BLANK>? |
-I know it’s a perfectly legitimate hobby, but I still cannot help but judge someone negatively for enjoying <BLANK> |
-I know it’s minor, but when I when I catch my boyfriend with <BLANK> it just irritates the hell out of me. |
-I like my <BLANK> like I like <BLANK> |
-I only pretend to enjoy <BLANK>, but everyone else seems to really like it. |
-I simply cannot bring myself to give a fuck about <BLANK> |
-I think about <BLANK> about to keep from cumming while having sex. |
-I use <BLANK> to deal with amusement. |
-I use <BLANK> to deal with appreciation. |
-I use <BLANK> to deal with caution. |
-I use <BLANK> to deal with closeness. |
-I use <BLANK> to deal with complaint/pain. |
-I use <BLANK> to deal with confusion. |
-I use <BLANK> to deal with courage. |
-I use <BLANK> to deal with discovery. |
-I use <BLANK> to deal with envy. |
-I use <BLANK> to deal with fear. |
-I use <BLANK> to deal with grief. |
-I use <BLANK> to deal with happiness. |
-I use <BLANK> to deal with hate. |
-I use <BLANK> to deal with hope. |
-I use <BLANK> to deal with love. |
-I use <BLANK> to deal with patience. |
-I use <BLANK> to deal with pity. |
-I use <BLANK> to deal with pride. |
-I use <BLANK> to deal with regret. |
-I use <BLANK> to deal with relaxation. |
-I use <BLANK> to deal with respect. |
-I use <BLANK> to deal with togetherness. |
-I use <BLANK> to deal with wonder. |
-I want <BLANK> for my birthday! |
-I would love a lifetime supply of <BLANK>. |
-I would never get <BLANK> for myself, but would love to give it as a gift. |
-I would NOT want a lifetime supply of <BLANK>. |
-I would you die for <BLANK>. |
+I have [BLANK] as a &ldquo;plan B&rdquo; topic for when a conversation starts becoming awkward. |
+I intentionally mispronounce [BLANK]? |
+I know it’s a perfectly legitimate hobby, but I still cannot help but judge someone negatively for enjoying [BLANK] |
+I know it’s minor, but when I when I catch my boyfriend with [BLANK] it just irritates the hell out of me. |
+I like my [BLANK] like I like [BLANK] |
+I only pretend to enjoy [BLANK], but everyone else seems to really like it. |
+I simply cannot bring myself to give a fuck about [BLANK] |
+I think about [BLANK] about to keep from cumming while having sex. |
+I use [BLANK] to deal with amusement. |
+I use [BLANK] to deal with appreciation. |
+I use [BLANK] to deal with caution. |
+I use [BLANK] to deal with closeness. |
+I use [BLANK] to deal with complaint/pain. |
+I use [BLANK] to deal with confusion. |
+I use [BLANK] to deal with courage. |
+I use [BLANK] to deal with discovery. |
+I use [BLANK] to deal with envy. |
+I use [BLANK] to deal with fear. |
+I use [BLANK] to deal with grief. |
+I use [BLANK] to deal with happiness. |
+I use [BLANK] to deal with hate. |
+I use [BLANK] to deal with hope. |
+I use [BLANK] to deal with love. |
+I use [BLANK] to deal with patience. |
+I use [BLANK] to deal with pity. |
+I use [BLANK] to deal with pride. |
+I use [BLANK] to deal with regret. |
+I use [BLANK] to deal with relaxation. |
+I use [BLANK] to deal with respect. |
+I use [BLANK] to deal with togetherness. |
+I use [BLANK] to deal with wonder. |
+I want [BLANK] for my birthday! |
+I would love a lifetime supply of [BLANK]. |
+I would never get [BLANK] for myself, but would love to give it as a gift. |
+I would NOT want a lifetime supply of [BLANK]. |
+I would you die for [BLANK]. |
 I've actually tricked a couple of people with that one. |
 If cats had their own internet, what would be on it? |
-If I had to sum-up the city of [your hometown] in one phrase it would have to be &ldquo;<BLANK>&rdquo; |
+If I had to sum-up the city of [your hometown] in one phrase it would have to be &ldquo;[BLANK]&rdquo; |
 If I were a superhero, what would my secret yet ultimate weakness be? |
 If it weren't for modern medicine, how would you have died? |
 If life was an RPG and you died what loot would you drop? |
-If people found <BLANK>attractive, I would have a date in minutes |
-If there was a book called 'How To Be That Person Everybody Hates', what would be in it? <BLANK>, <BLANK>, and <BLANK>. |
+If people found [BLANK]attractive, I would have a date in minutes |
+If there was a book called 'How To Be That Person Everybody Hates', what would be in it? [BLANK], [BLANK], and [BLANK]. |
 If you ask a cop for a snack, he has to give you one. |
 If you could choose your last words, what would they be? |
 If you could have one thing for free, real or fictitious, what would it be? |
@@ -89,35 +89,35 @@ If you were able to send Kim Jong Un one thing, what would it be? |
 If you were homeless, what would your cardboard sign say? |
 If you were sent to hell right now and one moment of your life was on loop, what would it be? |
 If you were the main story on the 6 o'clock news tonight, what would your 5 second headline be? |
-In 4 words, can you describe the city you live in? <BLANK>, <BLANK>, <BLANK>, <BLANK>. |
-In high school I was know for <BLANK>. |
+In 4 words, can you describe the city you live in? [BLANK], [BLANK], [BLANK], [BLANK]. |
+In high school I was know for [BLANK]. |
 In the year 2020, what will be on the front page of reddit? |
-It’s easier for kids to get away with <BLANK> than adults. |
-I’m getting real tired of explaining the <BLANK> card. |
-I’ve really struggled with <BLANK> all my life, but it’s hard to complain about it to others. |
+It’s easier for kids to get away with [BLANK] than adults. |
+I’m getting real tired of explaining the [BLANK] card. |
+I’ve really struggled with [BLANK] all my life, but it’s hard to complain about it to others. |
 Just got an android phone, what is the first thing. I should do to optimize it? |
-Man, its completely bonkers that <BLANK> hasn't been invented yet. |
-Man, I’m glad I’m over my teenage "<BLANK>" phase. |
+Man, its completely bonkers that [BLANK] hasn't been invented yet. |
+Man, I’m glad I’m over my teenage "[BLANK]" phase. |
 Men who have learned to last longer in bed, what's your secret? |
-My college roommate was completely mad at me for having <BLANK> in the dorm. I mean, come on, man, lighten up. |
-My hometown known for <BLANK>. |
-My parents had a hard time explaining to all their friends why my favorite childhood toy was <BLANK> |
+My college roommate was completely mad at me for having [BLANK] in the dorm. I mean, come on, man, lighten up. |
+My hometown known for [BLANK]. |
+My parents had a hard time explaining to all their friends why my favorite childhood toy was [BLANK] |
 Neapolitan ice cream has strawberry, chocolate, and vanilla because those were Napoleon Bonaparte's favorite flavors. |
 New Zealand was discovered in 1969 when ?Neil Armstrong spotted it from space. |
 No matter how fast you go, automatic doors will open in time. |
 Pineapple makes poop taste good |
-Provided it’s of proper quality, you only need to buy <BLANK> once. |
+Provided it’s of proper quality, you only need to buy [BLANK] once. |
 Reddit, what are movies that you enjoyed but would be too embarrassed to admit to people IRL? |
 Rocks are actually soft,but harden when touched. |
-School textbooks have completely left out the role of <BLANK> in the founding of this country. |
+School textbooks have completely left out the role of [BLANK] in the founding of this country. |
 So, what is your irrational fear? |
 Surgeons of reddit: what's the strangest thing you've found when you opened someone up? |
 Taylor Swift dumps you and writes a new song based on the breakup. What is the title? |
-The aliens were able to understand and assimilate to all aspects of human life, except for the concept of <BLANK>, that was totally lost on them. |
-The last time I cried it was over <BLANK>. |
-The last time I got punched in the face? Well, that’s a long story, but it had to do with <BLANK> |
+The aliens were able to understand and assimilate to all aspects of human life, except for the concept of [BLANK], that was totally lost on them. |
+The last time I cried it was over [BLANK]. |
+The last time I got punched in the face? Well, that’s a long story, but it had to do with [BLANK] |
 The person to your immediate right just announced they were an assassin who was there to kill you. What do you use to defend yourself? |
-The strangest thing you've ever seen on public transport is <BLANK>. |
+The strangest thing you've ever seen on public transport is [BLANK]. |
 The world is ending in 1 hour. What do you do? |
 Throughout your life, what video game has stolen most of your time? |
 Vin Diesel is actually an albino black man. |
@@ -141,7 +141,7 @@ What are you sick of hearing? |
 What are you superstitious about despite the fact that you don't consider yourself superstitious? |
 What are you, in ONE WORD? |
 What are your "dealbreakers" in a potential partner? |
-What are your predicitions about 2015? More <BLANK> and less <BLANK>. |
+What are your predicitions about 2015? More [BLANK] and less [BLANK]. |
 What are your weird fears? |
 What becomes more fun the more people who participate? |
 What British food do you want to try? |
@@ -181,7 +181,7 @@ What do you think should be in the average school curriculum but isn't? |
 What do you think should be taught at schools, but isn't? |
 What do you think when you watch COPS? |
 What do you want for Christmas? |
-What documentary really changed your views on <BLANK>? |
+What documentary really changed your views on [BLANK]? |
 What food do you judge people for eating? |
 What food gets inexplicably better when they become leftovers? |
 What food looks like shit but is actually delicious? |
@@ -189,7 +189,7 @@ What gets an undeserved bad reputation? |
 What happened on a first date that convinced you there'd be no second date? |
 What has reddit been completely wrong about? |
 What have you memorized word for word? |
-What I learned in boating school is <BLANK>. |
+What I learned in boating school is [BLANK]. |
 What important historical facts and stories are schools leaving out of textbooks? |
 What instrument or tool has the coolest name? |
 What is a commonly used word that you NEVER remember how to spell? |
@@ -243,7 +243,7 @@ What is the darkest thought that you have ever had? |
 What is the first memory you have of using the Internet? |
 What is the greatest non-sexual pleasure? |
 What is the luckiest thing that has ever happened to you? |
-What is the manliest sandwich you can make? Bread <BLANK> meat <BLANK> topped with <BLANK> and <BLANK> |
+What is the manliest sandwich you can make? Bread [BLANK] meat [BLANK] topped with [BLANK] and [BLANK] |
 What is the meanest thing a stranger has said to you on the internet? |
 What is the most absurd thing you've ever been accused of? |
 What is the most irrational thing you have ever been angry about? |
@@ -314,7 +314,7 @@ What stereotype do you have to deal with the most? |
 What takes the most effort yet yields the least reward? |
 What technology is perfect as it is and doesn't need to be improved? |
 What thankless job have you quietly performed? |
-What three items do I have in my box labeled &ldquo;in case of emergency&rdquo;? <BLANK>, <BLANK>, and <BLANK>. |
+What three items do I have in my box labeled &ldquo;in case of emergency&rdquo;? [BLANK], [BLANK], and [BLANK]. |
 What torture technique would break you the fastest? |
 What trend surprised you the most when it became popular? |
 What was a strange "phase" you went through when you were growing up? |
@@ -389,10 +389,10 @@ Whats one thing you can do as a Kid but not as an adult? |
 whats the one thing that you miss doing from your childhood? |
 Whats the weirdest thing you've walked in on in a public bathroom? |
 When did your childhood end? |
-When I met my girlfriend’s parents, I made the mistake of mentioning my <BLANK> hobby. |
-When in doubt, <BLANK>? |
+When I met my girlfriend’s parents, I made the mistake of mentioning my [BLANK] hobby. |
+When in doubt, [BLANK]? |
 When you were growing up, what was a popular "fad" that you never got into? |
-Whenever I have guests over, they always remark how strange it is that I keep <BLANK> in the refrigerator. |
+Whenever I have guests over, they always remark how strange it is that I keep [BLANK] in the refrigerator. |
 Where did you get 'that' scar from? |
 Which band has the best lyrical content? |
 Which bear is best? |
@@ -407,43 +407,43 @@ Why did you cry last time? |
 Why did you last get punched in the face? |
 Why do you consider your life ruined? |
 Why do you not believe in God? |
-Would you vote for a <BLANK> president? |
-You are given the power to transform into <BLANK>! |
+Would you vote for a [BLANK] president? |
+You are given the power to transform into [BLANK]! |
 You are sent 15 years into the future. You can bring one object to prove you are from the past. What do you bring? |
-You are walking down the street and a stranger slaps you with <BLANK>. |
-You can never be too old for <BLANK> |
+You are walking down the street and a stranger slaps you with [BLANK]. |
+You can never be too old for [BLANK] |
 You have 10 min control of all TV broadcasts in North Korea what do you display? |
-You have a box labeled "Emergency Kit." Five items are inside. What are they? <BLANK>, <BLANK>, <BLANK>, <BLANK>, <BLANK>. |
-You know what I really need? A &ldquo;Honk if you like <BLANK>&rdquo; bumper sticker. |
+You have a box labeled "Emergency Kit." Five items are inside. What are they? [BLANK], [BLANK], [BLANK], [BLANK], [BLANK]. |
+You know what I really need? A &ldquo;Honk if you like [BLANK]&rdquo; bumper sticker. |
 You weigh less at night because the gravity of the moon is pulling you toward it. |
 You're on Death Row, what is your last meal? |
-You're the <BLANK> to/of my <BLANK>. |
-Your mother was a <BLANK> and your father smelled of <BLANK> |
-<BLANK> gives me hope! |
-<BLANK> has  happened to everybody at least once. |
-<BLANK> is a good cologne. |
-<BLANK> is a must-have that costs $25 or less. |
-<BLANK> is a truly dying art nowadays. |
-<BLANK> is a USEFUL profession. |
-<BLANK> is awkward to use in normal conversation because of porn. |
-<BLANK> is how did you beat depression. |
-<BLANK> is my earliest memory? |
-<BLANK> is my goal in life. |
-<BLANK> is offensive/offends me. |
-<BLANK> is the funniest phrase in the English language. |
-<BLANK> is the most revolting sexual experience! |
-<BLANK> is the worst kind of employee. |
-<BLANK> looks delicious but actually tastes like shit. |
-<BLANK> made you stop loving my SO. |
-<BLANK> makes me cringe. |
-<BLANK> makes sex with a woman bad. |
-<BLANK> never fails to make me smile. |
-<BLANK> scared me as a child. |
-<BLANK> scares me |
-<BLANK> sounds dirty but is not. |
-<BLANK> was my greatest achievement of 2014. |
-<BLANK> would cause the  lamest possible apocalypse. |
-<BLANK>. Scarier at night that during the day. |
-<BLANK>. That’s when my childhood officially ended. |
-<BLANK>is the worst kind of pain! |
-<BLANK>will be the demise of me. |
+You're the [BLANK] to/of my [BLANK]. |
+Your mother was a [BLANK] and your father smelled of [BLANK] |
+[BLANK] gives me hope! |
+[BLANK] has  happened to everybody at least once. |
+[BLANK] is a good cologne. |
+[BLANK] is a must-have that costs $25 or less. |
+[BLANK] is a truly dying art nowadays. |
+[BLANK] is a USEFUL profession. |
+[BLANK] is awkward to use in normal conversation because of porn. |
+[BLANK] is how did you beat depression. |
+[BLANK] is my earliest memory? |
+[BLANK] is my goal in life. |
+[BLANK] is offensive/offends me. |
+[BLANK] is the funniest phrase in the English language. |
+[BLANK] is the most revolting sexual experience! |
+[BLANK] is the worst kind of employee. |
+[BLANK] looks delicious but actually tastes like shit. |
+[BLANK] made you stop loving my SO. |
+[BLANK] makes me cringe. |
+[BLANK] makes sex with a woman bad. |
+[BLANK] never fails to make me smile. |
+[BLANK] scared me as a child. |
+[BLANK] scares me |
+[BLANK] sounds dirty but is not. |
+[BLANK] was my greatest achievement of 2014. |
+[BLANK] would cause the  lamest possible apocalypse. |
+[BLANK]. Scarier at night that during the day. |
+[BLANK]. That’s when my childhood officially ended. |
+[BLANK]is the worst kind of pain! |
+[BLANK]will be the demise of me. |
